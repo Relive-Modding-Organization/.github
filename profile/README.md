@@ -4,3 +4,6 @@
 > Tezzy(Big T)
 
 > Brazi
+
+# Relive's Discord Server
+> https://discord.gg/SuRRHdZMwn
