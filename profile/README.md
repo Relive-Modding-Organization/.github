@@ -3,6 +3,8 @@
 # Modders
 > Tezzy(Big T)
 
+> Scoped
+
 > Brazi
 
 # Relive's Discord Server
